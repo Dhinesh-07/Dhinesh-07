@@ -6,6 +6,8 @@
 
 - 📫 How to reach me **dhineshkumar4567@gmail.com**
 
+- 📄 Know about my experiences [https://drive.google.com/file/d/10hwpML_Z1KnE57clGSCTHT0a5cyK40ca/view?usp=drive_link]
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/dhineshkumar s" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="dhineshkumar s" height="30" width="40" /></a>
