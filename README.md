@@ -4,7 +4,7 @@
 - 📫 How to reach me **dhineshkumar4567@gmail.com**
 
 - 📄 Know about my experiences [Google Drive](https://drive.google.com/file/d/1c2e0W9jcNV1USHIDP8-N9LwqwjObUG7S/view)
-- [Profile](https://profile.dhineshdk.in/)
+- [Website](https://profile.dhineshdk.in/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
